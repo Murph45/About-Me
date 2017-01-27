@@ -1,2 +1,2 @@
 # About-Me
-  I was born in Kingston,Jamaica in 1997. I spent most of my younger years in a small home with my mom who worked as a nurse at the hospital.
+  I was born in Kingston,Jamaica in 1997. I spent most of my younger years in a small home with my mom who worked as a nurse at the hospital. I didn’t only live with my mom but my aunt and my two cousins as well as my grandmother. My father at the time already lived in America with my older brother, however , it got the the point where he wanted my mom and I to live with him. So at the age of 7 I took my first plane ride to the United States of America where my new life would begin.
